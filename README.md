@@ -1,1 +1,1 @@
-# rsschool-cv
+https://artkoro94/rsschool-cv/cv
