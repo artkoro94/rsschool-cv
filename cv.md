@@ -1,1 +1,1 @@
-artkoro94 CV + commit
+https://artkoro94.github.io/rsschool-cv/
